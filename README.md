@@ -5,3 +5,13 @@ dni enemies/blocklist because you're a waste of my oxygen.
 iwc ppl who boop before knowing me, hazbin hotel & dandy world.
 
 int family, fof & nice people.
+
+fictional characters i kin (high to lowest)
+Cryingchild - FNAF
+Mono, Six - The Little Nightmares
+Sally, Bendrown - Creepypasta
+Ron - Bad Parenting
+Aubrey - Omori
+Simon - Cry of Fear
+David - Among The Sleep
+
