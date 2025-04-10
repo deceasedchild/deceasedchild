@@ -2,6 +2,6 @@
 
 dni enemies/blocklist because you're a waste of my oxygen.
 
-iwc ppl who boop before knowing me, hazbin hotel, dandy world.
+iwc ppl who boop before knowing me, hazbin hotel & dandy world.
 
-int family, fof, nice people.
+int family, fof & nice people.
