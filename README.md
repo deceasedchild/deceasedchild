@@ -12,6 +12,8 @@ i have diff personalities towards everyone, if im toxic ur js unlucky, if im kin
 
 Cryingchild - FNAF
 
+The Protagonis - Tattletail
+
 Mono, Six - The Little Nightmares
 
 Sally, Bendrown - Creepypasta
