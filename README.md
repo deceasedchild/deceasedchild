@@ -6,7 +6,10 @@ iwc ppl who boop before knowing me, hazbin hotel & dandy world.
 
 int family, fof & nice people.
 
-fictional characters i kin (high to lowest)
+i have diff personalities towards everyone, if im toxic ur js unlucky, if im kind ur lucky, if im mid it's nothing.
+
+# fictional characters i kin (high to lowest)
+
 Cryingchild - FNAF
 
 Mono, Six - The Little Nightmares
