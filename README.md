@@ -12,21 +12,21 @@
 ***
 # **۶ৎ fictional characters i kin (highest to lowest)**
 
-Cryingchild - FNAF
+**Cryingchild** - *FNAF*
 
-The Protagonis - Tattletail
+**The Protagonis** - *Tattletail*
 
-Mono, Six - The Little Nightmares
+**Mono, Six** - *The Little Nightmares*
 
-Sally, Bendrown - Creepypasta
+**Sally, Bendrown** - *Creepypasta*
 
-Ron - Bad Parenting
+**Ron - *Bad Parenting*
 
-Aubrey - Omori
+**Aubrey** - *Omori*
 
-Simon - Cry of Fear
+**Simon** - *Cry of Fear*
 
-David - Among The Sleep
+**David** - *Among The Sleep*
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⡶⠶⢦⣄⠀⠀⠀⠀⠀⣴⠟⠛⢧⣠⣶⣿⠻⣆⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢸⠁⡟⠦⠌⠛⠉⠉⠉⢹⠇⢠⣶⣼⣷⣞⢙⣧⣿⡀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
