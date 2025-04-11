@@ -20,7 +20,7 @@
 
 **Sally, Bendrown** - *Creepypasta*
 
-**Ron - *Bad Parenting*
+**Ron** - *Bad Parenting*
 
 **Aubrey** - *Omori*
 
