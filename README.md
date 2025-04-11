@@ -8,13 +8,8 @@
 ᡣ𐭩 . int family, fof & nice people.
 
 ꨄ . i have diff personalities towards everyone, if im toxic ur js unlucky, if im kind ur very lucky, if im mid it's nothing. 
-***
-⠀
-
 ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀:¨ ·.· ¨:
 ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ `· . 𐙚
-
-***
 # **۶ৎ fictional characters i kin (highest to lowest)**
 
 Cryingchild - FNAF
