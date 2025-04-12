@@ -5,7 +5,7 @@
 
 ꨄ . iwc ppl who boop before knowing me, hazbin hotel, dandy world & ppl who cuddle before knowing me unless ur my (close)friend's/family's friend.
 
-ᡣ𐭩 . int family, fof & nice people.
+ᡣ𐭩 . int family, fof, nice people & nice mindset people <-- bc i am too and I need someone who has it.
 
 ꨄ . i have diff personalities towards everyone, if im toxic ur js unlucky, if im kind ur very lucky, if im mid it's nothing.
         ⠀⠀ 𐙚
