@@ -1,7 +1,7 @@
 ***
 ![Image](https://github.com/user-attachments/assets/53e3e3c6-686f-413a-9e82-df665ea1e105)
 ***
-ᡣ𐭩 . dni enemies/blocklist because you're a waste of my oxygen. (homo,racists,pedo,rape) <-- fuck off 
+ᡣ𐭩 . dni enemies/blocklist because you're a waste of my oxygen & **very** toxic ppl. (homo,racists,pedo,rape) <-- fuck off 
 
 ꨄ . iwc ppl who boop before knowing me, hazbin hotel, dandy world & ppl who cuddle before knowing me unless ur my (close)friend's/family's friend.
 
