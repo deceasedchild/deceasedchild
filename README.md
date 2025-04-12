@@ -3,7 +3,7 @@
 ***
 ᡣ𐭩 . dni enemies/blocklist because you're a waste of my oxygen. (homo,racists,pedo,rape) <-- fuck off 
 
-ꨄ . iwc ppl who boop before knowing me, hazbin hotel, dandy world & ppl who cuddle before knowing me unless ur my friend's/family's friend.
+ꨄ . iwc ppl who boop before knowing me, hazbin hotel, dandy world & ppl who cuddle before knowing me unless ur my (close)friend's/family's friend.
 
 ᡣ𐭩 . int family, fof & nice people.
 
