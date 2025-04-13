@@ -11,8 +11,7 @@
 
 ᡣ𐭩 . answering questions: 1. why r u so rude = no, just direct and honest, depends on who i talk to, if I don't like u, then yeah that's my answer.      2. what language do u speak, and currently learning? = i speak thai & english and learning russian, bc my irl friends are russian      3. do u feel bad for others = yes, okay idk why one of my friends asked me this but definitely i do, mostly i dont show my emotions *!* But always be able to comfort.    4. what's ur favorite thing to learn about? = social psychology.      5. what is your name?  = rachel, ezra.      6. what's ur gender? = read github. It's she or sheher.    [that's it, anyways add my dc! .rachelmiller.]
 
-ꨄ . I need for later:
-The world population reached:
+ꨄ . The world population reached:
  * 1 billion: Around 1804
  * 2 billion: In 1927 (123 years later)
  * 3 billion: In 1960 (33 years later)
@@ -21,6 +20,27 @@ The world population reached:
  * 6 billion: In 1999 (12 years later)
  * 7 billion: In 2011 (12 years later)
  * 8 billion: In 2022 (11 years later)
+
+ᡣ𐭩 . Names I prefer getting called
+👑=Family🎁=Friends🎀=Strangers
+
+👑 . Woodchuck/woodchuckwood(wc,wcw) (dontask)
+
+👑 . Mi amor
+
+👑 . Idiot
+
+👑 . Ezra/Ezekiel/Echo
+
+🎁 . Rachel
+
+🎁 . Blender Boy{orgirl idc}
+
+🎁 . Doritos 
+
+🎀 . Rachel
+
+🎀 . Cc/Bv/any evan names
 
         ⠀⠀ 𐙚
 ***
