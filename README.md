@@ -9,7 +9,7 @@
 
 ꨄ . i have diff personalities towards everyone, if im toxic ur js unlucky, if im kind ur very lucky, if im mid it's nothing.
 
-ᡣ𐭩 . answering questions: 1. why r u so rude = no, just direct and honest, depends on who i talk to, if I don't like u, then yeah that's my answer.      2. what language do u speak, and currently learning? = i speak thai & english and learning russian, bc my irl friends are russian      3. do u feel bad for others = yes, okay idk why one of my friends asked me this but definitely i do, mostly i dont show my emotions *!* But always be able to comfort.    4. what's ur favorite thing to learn about? = social psychology.      5. what is your name?  = rachel, ezra.      6. what's ur gender? = read github. It's she or sheher.    [that's it, anyways add my dc! .rachelmiller.]
+ᡣ𐭩 . answering questions: 1. why r u so rude = no, just direct and honest, depends on who i talk to, if I don't like u, then yeah that's my answer.      2. what language do u speak, and currently learning? = i speak thai & english and learning russian, bc my irl friends are russian      3. do u feel bad for others = yes, okay idk why one of my friends asked me this but definitely i do, mostly i dont show my emotions *!* But always be able to comfort.    4. what's ur favorite thing to learn about? = social psychology.      5. what is your name?  = rachel, ezra.      6. what's ur gender? = read github. It's she or sheher.    [that's it, anyways add my dc! .rachelmiller. and tt _raychel_]
 
 ꨄ . The world population reached:
  * 1 billion: Around 1804
