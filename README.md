@@ -33,6 +33,8 @@
 
 👑 . Ezra/Ezekiel/Echo
 
+👑 . Money
+
 🎁 . Rachel 
 
 🎁 . Blender Boy{orgirl idc}
