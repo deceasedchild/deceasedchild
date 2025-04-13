@@ -24,7 +24,8 @@
 ᡣ𐭩 . Names I prefer getting called
 👑=Family🎁=Friends🎀=Strangers
 
-👑 . Woodchuck/woodchuckwood(wc,wcw) (dontask)
+👑 . Woodchuck/woodchuckwood
+(wc,wcw) (dontask)
 
 👑 . Mi amor
 
@@ -32,13 +33,13 @@
 
 👑 . Ezra/Ezekiel/Echo
 
-🎁 . Rachel
+🎁 . Rachel 
 
 🎁 . Blender Boy{orgirl idc}
 
 🎁 . Doritos 
 
-🎀 . Rachel
+🎀 . Rachel (2)
 
 🎀 . Cc/Bv/any evan names
 
