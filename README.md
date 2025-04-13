@@ -33,7 +33,7 @@
 
 👑 . Ezra/Ezekiel/Echo
 
-👑 . Money
+🎁 . Money lover
 
 🎁 . Rachel 
 
