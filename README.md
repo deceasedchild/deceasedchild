@@ -1,11 +1,11 @@
 ***
 ![Image](https://github.com/user-attachments/assets/53e3e3c6-686f-413a-9e82-df665ea1e105)
 ***
-ᡣ𐭩 . dni enemies/blocklist because you're a waste of my oxygen & **very** toxic ppl. (homo,racists,pedo,rape) <-- fuck off 
+ᡣ𐭩 . dni enemies/blocklist because you're a waste of my oxygen & **very** toxic ppl, immature <-- dont come in my life, who steal my styles. <--permblocked (homo,racists,pedo,rape) <-- whyuevenhere
 
 ꨄ . iwc ppl who boop before knowing me, hazbin hotel, dandy world & ppl who cuddle before knowing me unless ur my (close)friend's/family's friend.
 
-ᡣ𐭩 . int family, fof, nice people & good mindset people <-- bc i am too and I need someone who has it.
+ᡣ𐭩 . int family, fof, nice people & sucessful mindset people <-- bc i am too and I need someone who has it.
 
 ꨄ . i have diff personalities towards everyone, if im toxic ur js unlucky, if im kind ur very lucky, if im mid it's nothing. (whoever bullies u, tell me 😎 bc i win in fights)
 
