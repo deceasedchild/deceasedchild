@@ -3,13 +3,13 @@
 ***
 . personality: depends on who i talk to.
 
-. int: fam, fof, goodmindsetppl, mature.
+. int: fam, fof, goodmindsetppl, mature, insensitive.
 
-. iwc: crk, hh, dw, immature.
+. iwc: crk, hh, dw, immature, sensitive.
 
 . dni: rape,homo,racist,pedo.
 
-. perm block: skin copiers, name copiers, copycats, enemies, and same as dni.
+. perm block: skin copiers, name copiers, copycats, enemies, dni list.
 
 
 
