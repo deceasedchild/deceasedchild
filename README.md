@@ -1,16 +1,15 @@
 ***
 ![Image](https://github.com/user-attachments/assets/53e3e3c6-686f-413a-9e82-df665ea1e105)
 ***
-. personality: depends on who i talk to
+. personality: depends on who i talk to.
 
-. int: fam, fof, goodminsetppl
+. int: fam, fof, goodmindsetppl, mature.
 
-. iwc: crk, hh, dw.
+. iwc: crk, hh, dw, immature.
 
-. dni: rape,homo,racist,pedo
+. dni: rape,homo,racist,pedo.
 
-. perm block: skin copiers, name copiers, copycats, enemies, and same as dni
-
+. perm block: skin copiers, name copiers, copycats, enemies, and same as dni.
 
 
 
