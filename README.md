@@ -7,7 +7,7 @@
 
 . iwc: crk, hh, dw, badmindset, immature, sensitive. (does not mean I dislike u)
 
-. dni: rape,homo,racist,pedo.
+. dni: rape,homo,racist,pedo,deaththreats.
 
 . perm block: skin copiers, name copiers, copycats, enemies, dni list.
 
