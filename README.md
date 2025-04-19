@@ -13,5 +13,6 @@
 
 
 nicknames: rachel, ezra, miller
-discord: .rachelmiller. / snap: rachellmmiller 
+
+socials: discord: .rachelmiller. / snap: rachellmmiller (not giving all)
 ![Image](https://github.com/user-attachments/assets/78cf1685-e507-42ab-a900-c91273c12005)
