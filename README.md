@@ -3,9 +3,9 @@
 ***
 . personality: depends on who i talk to.
 
-. int: fam, fof, goodmindsetppl, mature, insensitive.
+. int: fam, fof, goodmindset, mature, insensitive.
 
-. iwc: crk, hh, dw, immature, sensitive.
+. iwc: crk, hh, dw, badmindset, immature, sensitive. (does not mean I dislike u)
 
 . dni: rape,homo,racist,pedo.
 
