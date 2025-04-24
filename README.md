@@ -16,7 +16,3 @@ nicknames: rachel, ezra, miller.
 
 
 socials: discord: .rachelmiller. / snap: rachellmmiller / spacehey: rachelmiller (not giving all socials)
-
-// [so um, i just wanted to say, can u guys not be me, or act like me, i dont want u to get inspiration from me either, or don't copy me or what i do please, ur not funny or cool and when i mostly tell u guys to change it, u just act sad no reason and victim and it makes me rlly upset. This is why I don't wanna be nice to people, just be urself?? U have ur own personality not other people personalities (MBTI doesn't count here), Grow up. Respectfully. + I'm already dealing with technical issues in my life, so please quit this behavior.] //
-
-![Image](https://github.com/user-attachments/assets/78cf1685-e507-42ab-a900-c91273c12005)
