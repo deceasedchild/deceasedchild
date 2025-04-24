@@ -16,4 +16,5 @@ nicknames: rachel, ezra, miller.
 
 
 socials: discord: .rachelmiller. / snap: rachellmmiller / spacehey: rachelmiller (not giving all socials)
+// [so um, i just wanted to say, can u guys not be me, or act like me, i dont want u to get inspiration for me either, or don't copy me or what i do please, ur not funny or cool and when i mostly tell u guys to change it, u just act sad no reason and victim and it makes me rlly upset.]//
 ![Image](https://github.com/user-attachments/assets/78cf1685-e507-42ab-a900-c91273c12005)
