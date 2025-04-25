@@ -2,7 +2,7 @@
 
 
 ***
-![Image](https://github.com/user-attachments/assets/53e3e3c6-686f-413a-9e82-df665ea1e105)
+![Image](https://github.com/user-attachments/assets/e23f660f-8103-4ae5-b9b1-03a11812aeaf)
 ***
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rqsywyohmogplyaqbw44o6ipvq&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false)](https://github.com/kittinan/spotify-github-profile)
 
