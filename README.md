@@ -31,6 +31,8 @@ Text HOME to 741741
 Find A Helpline: findahelpline.com. 
 
 You are not not alone. If you need assistance finding a mental health professional or support group in your area, feel free to ask. If you or someone you know is experiencing suicidal thoughts, please know that help is available worldwide. Pain can feel permanent, but it's not. Emotions come in waves, and even the darkest moments will pass. What you're feeling now isn't the end of your story--it's a chapter. And there's more to come. Beautiful things. Unexpected joys. People you haven't met yet. Dreams you haven't dreamed yet.
+
+่       (please spread this information.)
 ***
 
 nicknames: rachel, ezra, miller.
