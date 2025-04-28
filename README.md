@@ -34,4 +34,4 @@ socials: discord: .rachelmiller. / snap: rachellmmiller /
 
 ![Image](https://github.com/user-attachments/assets/722b0ea4-3754-42a1-a110-67580435e55e)
 
-TALK TO ME ON DC pwleoslsllsls begs
+TALK TO ME ON DC plsllsls begs
