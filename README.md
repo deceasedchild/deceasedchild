@@ -4,8 +4,7 @@
 ***
 ![Image](https://github.com/user-attachments/assets/de4648ff-47b9-4246-a508-36765ef925f3)
 ***
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rqsywyohmogplyaqbw44o6ipvq&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false)](https://github.com/kittinan/spotify-github-profile)
-
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rqsywyohmogplyaqbw44o6ipvq&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&bar_color=27202b)](https://github.com/kittinan/spotify-github-profile)
 
 
 
