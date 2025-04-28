@@ -32,6 +32,6 @@ nicknames: rachel, ezra, miller.
 
 socials: discord: .rachelmiller. / snap: rachellmmiller /
 
-![Image](https://github.com/user-attachments/assets/84cceb1e-0423-480a-b999-354a6db9e311)
+![Image](https://github.com/user-attachments/assets/722b0ea4-3754-42a1-a110-67580435e55e)
 
 TALK TO ME ON DC pwleoslsllsls begs
