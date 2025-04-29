@@ -30,7 +30,4 @@ You are not not alone. If you need assistance finding a mental health profession
 nicknames: rachel, ezra, miller.
 
 
-socials: discord: .rachelmiller. / snap: rachellmmiller /
-
-![Image](https://github.com/user-attachments/assets/b359b5e4-e0e0-4818-bb6f-caade6291452)
-not sure if this is someone else but still fck off and idc if ur mad bc i put it here exposing u so stay mad!! HAH
+socials: discord: .rachelmiller. / snap: rachellmmiller / spacehey: rachelmiller <-- i dont rlly use it anymors
