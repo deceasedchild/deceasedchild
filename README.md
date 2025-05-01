@@ -31,4 +31,4 @@ nicknames: rachel, ezra, miller.
 
 
 socials: discord: .rachelmiller. / snap: rachellmmiller / spacehey: rachelmiller <-- i dont rlly use it anymore.
-![Image](https://github.com/user-attachments/assets/a09a89fb-eab9-4380-aa82-340fc857e335)
+
