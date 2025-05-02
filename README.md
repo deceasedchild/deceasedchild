@@ -4,6 +4,10 @@
 ***
 ![Image](https://github.com/user-attachments/assets/de4648ff-47b9-4246-a508-36765ef925f3)
 ***
+socials: discord: .rachelmiller. / snap: rachellmmiller / spacehey: rachelmiller <-- i dont rlly use it anymore.
+(follow _ raychel _ to see drawings on tiktok)
+
+***
 # ***You Are Not Alone - Every Life Matters.***
 
 ### You are not a burden. 
@@ -29,6 +33,4 @@ You are not not alone. If you need assistance finding a mental health profession
 
 nicknames: rachel, ezra, miller.
 
-
-socials: discord: .rachelmiller. / snap: rachellmmiller / spacehey: rachelmiller <-- i dont rlly use it anymore.
 
