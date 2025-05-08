@@ -32,6 +32,6 @@ You are not not alone. If you need assistance finding a mental health profession
 ่       (please spread this information.)
 ***
 
-nicknames: rachel, ezra, miller, woodchuck, moneymaker, angerissuesgirl.
+nicknames: rachel, ezra, miller, woodchuck, moneymaker, angerissuesgirl, heartbreaker, chel, rach.
 
 
