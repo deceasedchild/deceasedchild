@@ -37,4 +37,4 @@ nicknames: rachel, ezra, miller, woodchuck, moneymaker, angerissuesgirl, heartbr
 
 ***
 ![Image](https://github.com/user-attachments/assets/1b18e5ca-7cf3-42bb-8f99-5c66a192a1e9)
-Evan Johnson i hope u look good in orange 😮‍💨🙄
+Evan Johnson i hope u don't look good in orange 😮‍💨🙄
