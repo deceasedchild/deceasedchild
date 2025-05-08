@@ -2,7 +2,8 @@
 
 
 ***
-![Image](https://github.com/user-attachments/assets/de4648ff-47b9-4246-a508-36765ef925f3)
+![Image](https://github.com/user-attachments/assets/0df87420-66a1-4634-8b7f-3c7d907066e8)
+masha and me💋💸/bestduofrdonotdeny
 ***
 socials: discord: .rachelmiller. / snap: rachellmmiller / spacehey: rachelmiller <-- i dont rlly use it anymore.
 (follow _ raychel _ to see drawings on tiktok)
