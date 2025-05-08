@@ -9,6 +9,21 @@ socials: discord: .rachelmiller. / snap: rachellmmiller / spacehey: rachelmiller
 (follow _ raychel _ to see drawings on tiktok)
 
 ***
+Can I have your daughter for the rest of my life?
+Say yes, say yes, 'cause I need to know
+You say I'll never get your blessin' 'til the day I die
+"Tough luck, my friend, but the answer is no"
+Why you gotta be so rude?
+Don't you know I'm human too?
+Why you gotta be so rude?
+I'm gonna marry her anyway
+(Marry that girl) marry her anyway
+(Marry that girl) yeah, no matter what you say
+(Marry that girl) and we'll be a family
+Why you gotta be so rude?
+[js some song i find cute]
+***
+
 # ***You Are Not Alone - Every Life Matters.***
 
 ### You are not a burden. 
