@@ -30,7 +30,7 @@ You are not not alone. If you need assistance finding a mental health profession
 
 ่       (please spread this information.)
 ***
-some hobbies i do: drawing, singing, dancing, acrobatics, ice&rollerskating, learning, knitting, photography, painting, exercising, acting, editing, DEFINITELY TWEENING, cooking, volleyball, football, basketball, handball, DEFINITELY RUNNING, sewing, chess.
+some hobbies i do: drawing, singing, dancing, acrobatics, ice&rollerskating, learning, knitting, photography, painting, exercising, acting, editing, DEFINITELY TWEENING, cooking, volleyball, football, basketball, handball, DEFINITELY RUNNING, sewing, chess, def cheerleading, gymnastic<--i hateu.
 ***
 nicknames you should/can call me: rachel, ezra, miller, woodchuck, moneymaker, angerissuesgirl/jokily, heartbreaker, chel, rach, girl.
 
