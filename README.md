@@ -34,5 +34,5 @@ You are not not alone. If you need assistance finding a mental health profession
 
 nicknames you should/can call me: rachel, ezra, miller, woodchuck, moneymaker, angerissuesgirl/jokily, heartbreaker, chel, rach, girl.
 
-nicknames you shouldn't call me: echo(traumaname), my last name, cusswords, sl2rs, mimi/yumi/emily/elliot (um wth that was 8 years ago), rapunzel,raquella<--i mean its fine just dont use it often, mostly my family calls me that even tho it's not my actual name.
+nicknames you shouldn't call me: echo(traumaname), my last name, cusswords, sl2rs, mimi/yumi/emily/elliot (um wth that was 8 years ago), rapunzel,raquella<--i mean its fine just dont use it often, mostly my irl family calls me that even tho it's not my actual name.
 ***
