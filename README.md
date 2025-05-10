@@ -30,8 +30,9 @@ You are not not alone. If you need assistance finding a mental health profession
 
 ่       (please spread this information.)
 ***
-
+some hobbies i do: drawing, singing, dancing, acrobatics, ice&rollerskating, learning, knitting, photography, painting, exercising, acting, editing, DEFINITELY TWEENING, cooking, volleyball, football, basketball, handball, DEFINITELY RUNNING, sewing, chess.
 nicknames you should/can call me: rachel, ezra, miller, woodchuck, moneymaker, angerissuesgirl/jokily, heartbreaker, chel, rach, girl.
 
 nicknames you shouldn't call me: echo(traumaname), my last name, cusswords, sl2rs, mimi/yumi/emily/elliot (um wth that was 8 years ago), rapunzel,raquella<--i mean its fine just dont use it often, mostly my irl family calls me that even tho it's not my actual name.
 ***
+
